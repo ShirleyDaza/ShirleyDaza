@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓Estudiante de Ingeniería Informática <br>con gran disposición para aprender, <br>adaptarme a nuevos retos y aportar <br>con compromiso. Busco mi primera <br>experiencia para crecer profesionalmente <br>en el área de TI.<br><br>🎓Computer Engineering student<br>with a strong willingness to learn,<br>adapt to new challenges, and contribute<br>with commitment. I'm seeking my first<br>opportunity to grow professionally<br>in the IT field.
+🎓Estudiante de Ingeniería Informática con gran disposición para aprender, adaptarme a nuevos retos y aportar con compromiso. Busco mi primera experiencia para crecer profesionalmente en el área de TI.<br><br>🎓Computer Engineering student with a strong willingness to learn, adapt to new challenges, and contribute with commitment. I'm seeking my first opportunity to grow professionally in the IT field.
 
 
 ## 🌐 Socials:
